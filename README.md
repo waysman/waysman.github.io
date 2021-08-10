@@ -1,1 +1,0 @@
-# waysman.github.io
